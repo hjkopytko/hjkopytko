@@ -1,6 +1,6 @@
 # Hi. I am Hannah 🍌.
 
-You've found my github. For now, it doesn't have a lot. But you're welcome to look around.
+You've found my github. For meow, it doesn't have a lot. But you're welcome to look around.
 
 ## Quick Facts
 - I like to learn, and teach. 
